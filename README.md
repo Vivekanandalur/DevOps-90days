@@ -77,3 +77,4 @@ Since I will be switching between resources, I dont have a fully defined plan, I
 
 
 will update more because i have to manage college as well !
+New change
